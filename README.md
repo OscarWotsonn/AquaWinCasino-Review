@@ -11,17 +11,17 @@ With **over 8,000 games** from leading software developers such as NetEnt, Micro
 
 ### Slot Games
 
-[cite_start]Slot enthusiasts will find a plethora of options, including classic 3-reel slots, video slots, and progressive jackpots. [cite_start]Popular titles like "Sweet Bonanza," "Cash of Gods," and "Piggy Riches Megaways" are available, offering diverse themes and features. [cite_start]There's also a rich collection of progressive jackpot slots, where lucky spins can land you life-changing wins.
+Slot enthusiasts will find a plethora of options, including classic 3-reel slots, video slots, and progressive jackpots. Popular titles like "Sweet Bonanza," "Cash of Gods," and "Piggy Riches Megaways" are available, offering diverse themes and features. There's also a rich collection of progressive jackpot slots, where lucky spins can land you life-changing wins.
 
 ### Table Games
 
-[cite_start]For fans of traditional casino games, AquaWin provides a variety of table games, including multiple variants of blackjack, roulette, baccarat, and poker. [cite_start]These games cater to both low and high-stakes players. [cite_start]You’ll even find unique variations like Lightning Roulette and Speed Blackjack.
+For fans of traditional casino games, AquaWin provides a variety of table games, including multiple variants of blackjack, roulette, baccarat, and poker. These games cater to both low and high-stakes players. You’ll even find unique variations like Lightning Roulette and Speed Blackjack.
 
 ### Live Casino
 
-[cite_start]The live casino section offers an immersive experience with real dealers hosting games in real-time. [cite_start]Players can enjoy live versions of blackjack, roulette, baccarat, and game shows, enhancing the interactive aspect of online gambling. [cite_start]These games bring the energy of a real casino to your screen, complete with live dealers, real-time interaction, and HD video streaming.
+The live casino section offers an immersive experience with real dealers hosting games in real-time. Players can enjoy live versions of blackjack, roulette, baccarat, and game shows, enhancing the interactive aspect of online gambling. These games bring the energy of a real casino to your screen, complete with live dealers, real-time interaction, and HD video streaming.
 
-[cite_start]The filter system on the website makes it easy to find your favorite game types, providers, or even RTP ranges, which shows how well AquaWin understands its audience.
+The filter system on the website makes it easy to find your favorite game types, providers, or even RTP ranges, which shows how well AquaWin understands its audience.
 
 ---
 
