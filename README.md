@@ -25,18 +25,6 @@
 
 [cite_start]AquaWin Casino offers a generous array of bonuses and promotions to attract and retain players.
 
-### Ongoing Promotions
-
-Regular players can benefit from various promotions:
-* [cite_start]**Weekly Reload Bonus**: 50 free spins on a minimum deposit of €20.
-* [cite_start]**Weekend Reload Bonus**: 50% match up to €700 plus 50 free spins.
-* [cite_start]**Weekly Cashback**: 15% cashback up to €3,000 on weekly losses.
-* [cite_start]**Live Cashback**: 25% cashback up to €200 on live casino losses.
-
-### No Deposit Bonus
-
-[cite_start]AquaWin also offers a no deposit bonus of 50 free spins upon registration, allowing players to explore the platform without any financial commitment.
-
 ## 💳 Payment Methods and Withdrawal Policies
 
 [cite_start]AquaWin supports a variety of payment methods, ensuring convenient transactions for players worldwide.
@@ -49,13 +37,6 @@ Players can fund their accounts using:
 * [cite_start]Prepaid Cards (Paysafecard) 
 * [cite_start]Bank Transfers 
 * [cite_start]Cryptocurrencies (Bitcoin, Ethereum) 
-
-### Withdrawal Policies
-
-Withdrawals are processed promptly, with the following limits:
-* [cite_start]**Daily Limit**: €500 
-* [cite_start]**Monthly Limit**: €7,000 
-[cite_start]Processing times vary depending on the chosen method, but e-wallets typically offer the fastest withdrawals. [cite_start]Being able to deposit and withdraw using Bitcoin or Ethereum gave me extra flexibility and anonymity.
 
 ## 📱 Mobile Compatibility
 
